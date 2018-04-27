@@ -1,2 +1,2 @@
 # hello-denny
-keep learning
+end good times for coooks
